@@ -4,3 +4,5 @@
 telegram group: https://t.me/+K8m91cXmHKFiMTcx
 
 下载： https://komi.anonymousx.top/#/home
+
+google play版本: https://play.google.com/store/apps/details?id=com.komi_free_mobile_vpn.komi
